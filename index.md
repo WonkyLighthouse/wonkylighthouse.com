@@ -1,3 +1,3 @@
-## Welcome to the Wonky Lighthouse
+## Welcome to the Wonky Lighthouse Web Site
 
 ### Coming Soon
